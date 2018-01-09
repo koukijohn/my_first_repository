@@ -1,9 +1,2 @@
 1. Spirit
-2. Bursti
-
-
-
-
-
-
-
+2. Burstiscool
