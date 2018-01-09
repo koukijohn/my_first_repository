@@ -1,2 +1,2 @@
 1. Spirit
-2. Burst
+2. Bursti
